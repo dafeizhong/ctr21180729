@@ -5,7 +5,7 @@
 
 ![avatar](C:\Users\Administrator\Downloads\BB1gaUQt.jfif)
 
-![avatar](https://img-s-msn-com.akamaized.net/tenant/amp/entityid/BB1gaUQt.img?h=1080&w=1920&m=6&q=60&o=f&l=f&x=547&y=319)
+![avatar](https://img.clinicmed.net/uploadimg/image/20200720/15952411665f1572ceab5832.70744608.gif)
 
 姓名|性别|学号
 --|:--:|--:
